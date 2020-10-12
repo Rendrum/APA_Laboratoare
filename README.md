@@ -1,1 +1,0 @@
-# APA_Laboratoare
